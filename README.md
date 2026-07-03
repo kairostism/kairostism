@@ -26,3 +26,4 @@ If you need to contact me formally for whatever reason, contact me over [wopin75
 ## If you came from Ponytown:  
 Heyo! I'm open to conversation and questions-I'm mostly in Safe Server #1 :P  
 Though I can not believe I have to say this, but please do not vent to me without asking thank you! Well you shouldn't be giving your whole life's backstory to random strangers on the internet right?  
+Find me mostly pottering about with my best friend OR in the **bakery** I'm there often mostly offtab. 
